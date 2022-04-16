@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VanitasQQ
+- 👀 I’m interested in Anime, Gaming and may be coding...
+- 🌱 I’m currently learning Chinese.
+- 💞️ I’m looking to collaborate on Steam ¯\_(O_o)_/¯
